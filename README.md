@@ -1,0 +1,6 @@
+-  Hi, I’m plrty
+-  I’m currently learning modeling, webdev, programming('python', "c#"), and lots more..
+-  I’m looking to collaborate on game project - modeler
+-  How to reach me discord - plrty
+-  Pronouns: fuck pronouns 🗣️🔥
+-  Fun fact: Above is true!!
